@@ -1,29 +1,34 @@
-In the heart of the North, where mountains rise tall,
-A vision was born, a clarion call.
-HackTheNorth.ph, where minds come to grow,
-A beacon of learning, where talents will flow.
+In the northern winds where innovation stirs,
+A movement takes shape, with vision that blurs.
+HackTheNorth.ph stands, a beacon of might,
+Calling the curious to harness the light.
 
-From Luzon’s vast fields to the cities so bright,
-A community thrives, chasing the light.
-The largest of gatherings, where hackers unite,
-Innovators, dreamers, igniting the night.
+From circuits and code to systems so vast,
+A future is crafted, a legacy cast.
+ICT enthusiasts rise to the call,
+Together they build, together they fall.
 
-With code as their canvas, they break every chain,
-Creating new worlds from passion and brain.
-A mission to foster, to nurture, to guide,
-Where skill meets ambition, and hearts open wide.
+Here, knowledge flows like rivers so wide,
+Where the hackers of tomorrow are taught to stride.
+With minds full of passion, they dare to explore,
+Unlocking the gates to a world full of more.
 
-The challenge is vast, the journey is long,
-But together, we rise, resilient and strong.
-Redefining hacking, not as it seems,
-But shaping the future through digital dreams.
+Redefining hacking, not as breaking apart,
+But building connections, a hacker’s true art.
+A secret in puzzles, a path to be showed,
+Lies deep in the heart of the code being flowed.
 
-For the hackers of tomorrow who dare to explore,
-HackTheNorth.ph opens the door.
-A place where the ICT community grows,
-Globally bound, where talent overflows.
+The largest of conferences, North Luzon’s pride,
+Where dreams of tomorrow and today coincide.
+From novice to master, each one has their place,
+In this journey of growth, in this digital race.
 
-So join in the quest, and share in the flame,
-At HackTheNorth.ph, where we rise to acclaim.
-The path is uncertain, but with each passing day,
-We inspire, we conquer, and pave a new way.
+HackTheNorth.ph, where ambition ignites,
+A spark for the future, through endless late nights.
+A community bound by the will to create,
+To inspire the world and challenge their fate.
+
+So stand with the dreamers, the thinkers, the bold,
+In this realm of the brave, where the future’s unrolled.
+With HackTheNorth.ph, you’ll learn and you’ll grow,
+And lead the way forward in a world we don’t yet know.
