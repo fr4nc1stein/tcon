@@ -13,11 +13,8 @@ Creating new worlds from passion and brain.
 A mission to foster, to nurture, to guide,
 Where skill meets ambition, and hearts open wide.
 
-And deep in this network, a key you will find,
-tcon{fffca4d67ea0a788813031b8bbc3b329}, a prize intertwined.
-For those who seek wisdom, and those who will dare,
-A treasure lies waiting in digital air.
-
+The challenge is vast, the journey is long,
+But together, we rise, resilient and strong.
 Redefining hacking, not as it seems,
 But shaping the future through digital dreams.
 
